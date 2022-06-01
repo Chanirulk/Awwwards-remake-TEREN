@@ -1,6 +1,8 @@
 
 This Website was crafted by - @chaniru.lk - instagram
 
+![Scrrenshot](https://im.ge/i/r8jZBc)
+
 # About the AUTHOR
 
 Follow on instagram - @chaniru.lk 
